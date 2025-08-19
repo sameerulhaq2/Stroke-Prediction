@@ -99,5 +99,5 @@ Sameer-Ul-Haq
 MSc Data Science & Analytics  
 Toronto Metropolitan University
 
-Feel free to connect on [LinkedIn](https://www.linkedin.com/) or [Email](mailto:sameerulhaq88@outlook.com)
+Feel free to connect on  [Email](mailto:sameerulhaq88@outlook.com)
 
